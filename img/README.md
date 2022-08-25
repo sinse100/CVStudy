@@ -1,0 +1,1 @@
++ big_buck 영상의 경우, 용량이 큰 관계로, http://bbb3d.renderfarming.net/download.html 에서 직접 다운로드 잗으세요!
